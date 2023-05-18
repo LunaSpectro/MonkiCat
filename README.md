@@ -1,5 +1,3 @@
 # MonkiCat
-ª
 
-
-qqqqq
+GitHub creado por Petes para Petes :3
